@@ -4,4 +4,4 @@
 ![Untitled32_20250409162946](https://github.com/user-attachments/assets/a792fd6a-edbf-434a-b0da-7de251576648)
 ![typewriter](https://github.com/user-attachments/assets/3ea81ea8-6108-44fa-a99a-e65bbf49482f)
 ![Untitled36_20250409170853](https://github.com/user-attachments/assets/684c76c3-4e05-451d-89a7-a91738095b6c)
-<p align="center"> ![](https://komarev.com/ghpvc/?username=w1llgr4h4m&style=plastic&color=7C4533&label=౨🐾ৎ++++++) </p>
+!<p align="center"> ![](https://komarev.com/ghpvc/?username=w1llgr4h4m&style=plastic&color=7C4533&label=౨🐾ৎ++++++)
